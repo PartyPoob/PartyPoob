@@ -17,5 +17,6 @@ check out my trading links. looking for Mapicc/Spoke/princezam related stuf.<br>
 My sona!!<br><img width="1105" height="2000" alt="3803" src="https://github.com/user-attachments/assets/fd0042d2-90e6-402b-a92b-e13afcbbed45" />
 <img width="1536" height="2048" alt="3816" src="https://github.com/user-attachments/assets/19bd3bc9-7874-47b8-a001-6097ffcb8874" /><br>
 more info hopefully soon. <br>
+fanart appreciated maybe I'll put them in my strawpage<br>
 <Br>
 <img width="735" height="582" alt="3357" src="https://github.com/user-attachments/assets/239cb994-0a5c-4284-9051-4822190a096a" />
