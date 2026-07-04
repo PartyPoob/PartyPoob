@@ -18,7 +18,7 @@
  ͜͝ ̣̣̥ 𓏼𓈒   ᩙ ⎯‌ؖ ݂֗Frozel soul , Pony town , unstable universe , strength smp , donut smp , lifesteal , sewh , roblox and Minecraft media , animal Hospital anomaly (AHA) , used to be a fat dandy's world twink I don't support Qwel , SEMI forsaken fan I just like chance nothing else the gameplay is ok but I hate half of the fandom , mixology , spore storm (Hugo my love🤤🤤) , WhiteDoorOpened (anomaly horror film) , Radar (anomaly SHORT horror film) ݂֗✿ ᩧ𓏼<br>
 <br>
       𓈒⁞ ᑲყⅈ ͜͝ 𓏲<br>
- ͜͝ ̣̣̥ 𓏼𓈒   ᩙ ⎯‌ؖ ݂֗I have adhd and im struggling from memory issue please don't push my limits or try to blame me for stuff. if youre gonna start an argument for no reason leave me the ||fuck|| alone. im clingy, pathetic and sometimes just dumb. I'm also struggling from severe emophillia it's not even a joke anymore PLEASE do not jump me when I suddenly confess that I like you or anything even if we are close ^_^;;: ݂֗✿ ᩧ𓏼<br>
+ ͜͝ ̣̣̥ 𓏼𓈒   ᩙ ⎯‌ؖ ݂֗I have adhd and im struggling from memory issue please don't push my limits or try to blame me for stuff. if youre gonna start an argument for no reason leave me the fuck alone. im clingy, pathetic and sometimes just dumb. I'm also struggling from severe emophillia it's not even a joke anymore PLEASE do not jump me when I suddenly confess that I like you or anything even if we are close ^_^;;: ݂֗✿ ᩧ𓏼<br>
 <br>
       𓈒⁞ ᦔᥒⅈ ᩧ⌇<br>
  ͜͝ ̣̣̥ 𓏼𓈒   ᩙ ⎯‌ؖ ݂֗basic dni criteria. boundary breakers... nothing else. ݂֗✿ ᩧ𓏼<br>
