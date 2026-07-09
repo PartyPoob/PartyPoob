@@ -27,6 +27,8 @@ eyestrain warning
 <img width="130" height="17" alt="5446" src="https://github.com/user-attachments/assets/d79ae8b8-cf94-4fcc-a036-b081d05631d2" />
 <img width="150" height="20" alt="5445" src="https://github.com/user-attachments/assets/182ad322-7141-4f6b-ac35-3d1de93d5465" />
 <img width="150" height="21" alt="5444" src="https://github.com/user-attachments/assets/86e3884e-88d2-4568-9dcf-1c85981fee27" />
+ <img width="150" height="20" alt="5441" src="https://github.com/user-attachments/assets/c5de39cf-62de-4d5d-bb2b-15edc41cc006" />
+
 <br>
 <br>
 <br>
@@ -43,7 +45,9 @@ eyestrain warning
 <img width="99" height="56" alt="5438" src="https://github.com/user-attachments/assets/cc35898e-f499-4cdd-bfb2-eef87a36f770" />
 <img width="99" height="56" alt="5440" src="https://github.com/user-attachments/assets/379bd9f7-9fdd-40ab-a6e5-3e333e352c47" />
 <br>
-
+<br>
 <img width="1280" height="82" alt="5429" src="https://github.com/user-attachments/assets/c7714aed-071c-4b33-a00b-386b943fd86d" />
+<img width="794" height="17" alt="5443" src="https://github.com/user-attachments/assets/14adaff3-3a8d-4fa5-8e5e-b14c3d80ac3a" />
+
 
 </p>
