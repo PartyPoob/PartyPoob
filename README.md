@@ -5,6 +5,7 @@
 <br>
 <br>
 eyestrain warning
+(better in pc)
 <br>
 <br>
 <br>
