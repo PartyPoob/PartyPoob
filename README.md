@@ -1,6 +1,10 @@
+
+<br>
+ <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=Wilfies&color=ed3f65&style=flat&label=Nyan_kittens!" alt="Views">
+</p>
+<br>
 <p align="center">
-<br>
-<br>
 <br>
 <br>
 <br>
