@@ -31,7 +31,7 @@
 
 　　　 ִ　　  ݁ 　𓈒　　ℐnterests : im in <br> sooo many fandoms. check out co/mondue for all my fandoms. I LOVE MY BABY @unpleasant-like THEYRE MY EVERYTHING YES YES YES YES<br>
 　　　 ۪۪۪. ། ˚̣̣̣  ۫ ִ　  　 ֺ　⎯⎯⎯<br>
-　　　gay　bisexual𓏼　bigendef𓏼 <br>
+　　　gay　bisexual𓏼　bigender𓏼 <br>
 <br>
 <br>
 <br>
