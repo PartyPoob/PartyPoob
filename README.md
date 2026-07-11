@@ -20,7 +20,18 @@
 <br>
 <br>
 <br>
-wip <img width="20" height="20" alt="5557" src="https://github.com/user-attachments/assets/78d4ffca-7646-4429-a8b8-adb5a1168b16" />
+ 𓈒⑅ | |𓈒 ׁ 　ㆍ  ˳͡ 𓏼<br>
+　　　　˳ॱ　　 ๋⠀⵿𓈒　　⏔⏔˚̣  𓈒<br>
+　　　˳Kasper/Kyu<img width="20" height="20" alt="5556" src="https://github.com/user-attachments/assets/f6580fa0-89fa-4124-8c6a-1231c008bd83" /><br>
+　　 ִ  ۫۫　𓏬　　ᣟ𓈒  ♪⃞<img width="20" height="20" alt="5554" src="https://github.com/user-attachments/assets/c87ea565-3364-4a68-8c3f-f1dc5a705174" />
+ᣟ݂　<br>
+　　𓉸　 ⁞ ̣̣　 ۫　　he/him 　　˚̣̣̣　　she/it<br>
+　　⎯⎯　　˳ॱ　　 ๋⠀⵿𓈒　　⏔⏔˚̣  𓈒<br>
+　　　　　⁀➴　　˚̣̣̣　◟ ͜  ̣̣̥ ͜   ᣟ　𓋭<br>
+
+　　　 ִ　　  ݁ 　𓈒　　ℐnterests : im in <br> sooo many fandoms. check out co/mondue for all my fandoms. I LOVE MY BABY @unpleasant-like THEYRE MY EVERYTHING YES YES YES YES<br>
+　　　 ۪۪۪. ། ˚̣̣̣  ۫ ִ　  　 ֺ　⎯⎯⎯<br>
+　　　gay　bisexual𓏼　bigendef𓏼 <br>
 <br>
 <br>
 <br>
