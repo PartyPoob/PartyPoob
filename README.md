@@ -1,15 +1,14 @@
 
 <br>
  <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Wilfies&color=ed3f65&style=flat&label=Nyan_kittens!" alt="Views">
+  <img src="https://komarev.com/ghpvc/?username=Wilfies&color=ed3f65&style=flat&label=Kasperish!" alt="Views">
 </p>
 <br>
 <p align="center">
 <br>
 <br>
 <br>
-eyestrain warning
-(better in pc)
+wip
 <br>
 <br>
 <br>
