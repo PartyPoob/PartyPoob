@@ -7,8 +7,6 @@
 <p align="center">
 <br>
 <br>
-<img width="2000" height="2000" alt="5655" src="https://github.com/user-attachments/assets/b46880e4-7395-484c-9e44-30e9d130db3d" />
-
 <br>
 <img width="900" height="419" alt="5627" src="https://github.com/user-attachments/assets/d03fb984-eb47-40c9-aefb-5efca11d2db5" />
 <br>
