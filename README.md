@@ -1,14 +1,15 @@
-
 <br>
+<br>
+<br>
+<p align="center">
+<img width="900" alt="5627" src="https://github.com/user-attachments/assets/d03fb984-eb47-40c9-aefb-5efca11d2db5" />
+<br>
+</p>
  <p align="center">
   <img src="https://komarev.com/ghpvc/?username=Wilfies&color=ed3f65&style=flat&label=Kasperish!" alt="Views">
 </p>
 <br>
 <p align="center">
-<br>
-<br>
-<br>
-<img width="900" alt="5627" src="https://github.com/user-attachments/assets/d03fb984-eb47-40c9-aefb-5efca11d2db5" />
 <br>
 <br>
 <br>
