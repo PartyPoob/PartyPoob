@@ -22,8 +22,10 @@
 <br>
 <br>
 </p>
-
-[![txt](https://files.catbox.moe/cq5dv1.png)](https://directorspoke.atabook.org/) [![txt](https://files.catbox.moe/86mzpt.png)](https://aftervoids.straw.page)
+<div align="center">
+  <a href="https://directorspoke.atabook.org/"><img src="https://files.catbox.moe/cq5dv1.png"></a>
+  <a href="https://aftervoids.strawpage"><img src="https://files.catbox.moe/86mzpt.png"></a>
+</div>
 <br>
 <br>
 <br>
