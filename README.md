@@ -12,6 +12,7 @@
 <br>
 <br>
 <br>
+ <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=3000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=500&lines=Unpleasant?;no...;you+are+not...">
 <br>
 <br>
 <img width="1920" height="1368" alt="5568" src="https://github.com/user-attachments/assets/cdefa44a-da76-433c-8474-a771283a7c70" />
