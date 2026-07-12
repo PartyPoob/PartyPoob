@@ -21,18 +21,12 @@
 <br>
 <br>
 <br>
- 𓈒⑅ | |𓈒 ׁ 　ㆍ  ˳͡ 𓏼<br>
-　　　　˳ॱ　　 ๋⠀⵿𓈒　　⏔⏔˚̣  𓈒<br>
-　　　˳Kasper/Kyu<img width="20" height="20" alt="5556" src="https://github.com/user-attachments/assets/f6580fa0-89fa-4124-8c6a-1231c008bd83" /><br>
-　　 ִ  ۫۫　𓏬　　ᣟ𓈒  ♪⃞<img width="20" height="20" alt="5554" src="https://github.com/user-attachments/assets/c87ea565-3364-4a68-8c3f-f1dc5a705174" />
-ᣟ݂　<br>
-　　𓉸　 ⁞ ̣̣　 ۫　　he/him 　　˚̣̣̣　　she/it<br>
-　　⎯⎯　　˳ॱ　　 ๋⠀⵿𓈒　　⏔⏔˚̣  𓈒<br>
-　　　　　⁀➴　　˚̣̣̣　◟ ͜  ̣̣̥ ͜   ᣟ　𓋭<br>
+</p>
+ <p align="center">
 
-　　　 ִ　　  ݁ 　𓈒　　ℐnterests : im in <br> sooo many fandoms. check out co/mondue for all my fandoms. I LOVE MY BABY @unpleasant-like THEYRE MY EVERYTHING YES YES YES YES<br>
-　　　 ۪۪۪. ། ˚̣̣̣  ۫ ִ　  　 ֺ　⎯⎯⎯<br>
-　　　gay　bisexual𓏼　bigender𓏼 <br>
+  [![txt](https://files.catbox.moe/cq5dv1.png)](https://directorspoke.atabook.org/) [![txt](https://files.catbox.moe/86mzpt.png)](https://aftervoids.straw.page)<br>
+  
+</p>
 <br>
 <br>
 <br>
