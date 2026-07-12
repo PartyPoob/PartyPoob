@@ -22,20 +22,16 @@
 <br>
 <br>
 </p>
- <p align="center">
 
-  [![txt](https://files.catbox.moe/cq5dv1.png)](https://directorspoke.atabook.org/) [![txt](https://files.catbox.moe/86mzpt.png)](https://aftervoids.straw.page)<br>
-  
-</p>
+[![txt](https://files.catbox.moe/cq5dv1.png)](https://directorspoke.atabook.org/) [![txt](https://files.catbox.moe/86mzpt.png)](https://aftervoids.straw.page)
 <br>
 <br>
 <br>
 <br>
 <br>
-<img width="396" height="150" alt="5628" src="https://github.com/user-attachments/assets/746164ea-0882-40e6-a27b-b14475325e0b" />
-
-
-
-
+<br>
+<p align="center">
+ 
+<img width="896" height="450" alt="5628" src="https://github.com/user-attachments/assets/746164ea-0882-40e6-a27b-b14475325e0b" />
 
 </p>
