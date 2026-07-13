@@ -21,7 +21,7 @@
 <br>
 </p>
 <div align="center">
-  <a href="https://directorspoke.atabook.org/"><img src="https://files.catbox.moe/cq5dv1.png"></a>
+  <a href="https://kasperism.atabook.org/"><img src="https://files.catbox.moe/cq5dv1.png"></a>
   <a href="https://aftervoids.strawpage"><img src="https://files.catbox.moe/86mzpt.png"></a>
 </div>
 <br>
