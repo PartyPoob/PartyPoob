@@ -22,8 +22,8 @@
 <br>
 </p>
 <div align="center">
-  <a href="https://kasperism.atabook.org/"><img src="https://files.catbox.moe/p8oy4c.png"></a>
-  <a href="https://aftervoids.straw.page"><img src="https://files.catbox.moe/yyklcq.png"></a>
+  <a href="https://kasperism.atabook.org/"><img src="https://files.catbox.moe/yyklcq.png"></a>
+  <a href="https://aftervoids.straw.page"><img src="https://files.catbox.moe/p8oy4c.png"></a>
 </div>
 <br>
 <br>
