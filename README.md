@@ -24,7 +24,7 @@
 <div align="center">
   <a href="https://kasperism.atabook.org/"><img src="https://files.catbox.moe/n2bp5b.png"></a>
   <a href="https://prey.lol/@spokeishere"><img src="https://files.catbox.moe/q7e9vp.png"></a>
-</div><br>
+<br>
  <br>
  <br>
 IMAGINE CALLING SOMEONE'S SPOKE KINSONA SPOKE HIMSELF BRO THATS KINSONA WHICH MEANS THATS ME IRL KASPER IS ALSO MY KIN SO I "COMMISIONED" YES COMMISSIONED SOMEONE TO DRAW ME KISSING MYSELF THATS NOT THAT HARD OH MY GOD<br>
@@ -35,6 +35,7 @@ IMAGINE CALLING SOMEONE'S SPOKE KINSONA SPOKE HIMSELF BRO THATS KINSONA WHICH ME
 <br>
 <br>
 <br>
+ </div>
 <p align="center">
  
 <img width="1280" alt="5937" src="https://github.com/user-attachments/assets/137bbf83-64e8-4231-91cd-c3a438f67514" />
