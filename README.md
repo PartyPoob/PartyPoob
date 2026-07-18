@@ -2,7 +2,7 @@
 
 <br>
 </p>
- <p align="center">
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=Wilfies&color=F4AC6B&style=flat&label=Party_loser!" alt="Views">
 </p>
 <br>
