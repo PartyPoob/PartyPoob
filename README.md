@@ -12,7 +12,7 @@
 <br>
 <br>
 <br>
- <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2000&pause=500&color=5496af&center=true&vCenter=true&width=500&lines=Dry+your+eyes.;I+won't+tell+ur+mother.;she+won't+ever+discover.;the+things+you+keep+under+the+covers,;please+don't+cry.;I+am+not+your+brother,;im+not+your+Lover.;and+there+is+nothing+wrong!."><br>
+ <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2000&pause=500&color=5496af&center=true&vCenter=true&width=500&lines=Dry+your+eyes.;I+won't+tell+ur+mother.;she+won't+ever+discover.;the+things+you+keep—;under+the+covers,;please+don't+cry.;I+am+not+your+brother,;im+not+your+Lover.;and+there+is+nothing+wrong!."><br>
 <br>
 <br>
 <br>
