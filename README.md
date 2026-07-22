@@ -1,21 +1,46 @@
-no/late resp. Im trying to fix stuff please iwc I do not care if Mars and her friends will keep whispering my moots to leave me it's okay it's not like im going to stop people:// just don't attack me nor send me threads (speaking from experience) just leave me alone if youre planning to unfriend me <img width="30" alt="6205" src="https://github.com/user-attachments/assets/889d9ca5-71fd-419e-817a-5941f9825b12" /> anyway heres some of my doodles/stuff
-<img width="1536" height="2048" alt="5406" src="https://github.com/user-attachments/assets/ddd30a8c-c1ac-4c7b-baf9-f1671f439898" />
-<img width="1536" height="2048" alt="5403" src="https://github.com/user-attachments/assets/f173f999-0478-4e5c-9ca9-9c689eea613b" />
-<img width="1536" height="2048" alt="5402" src="https://github.com/user-attachments/assets/af3af078-1edf-4a1f-a11f-433f2da10f68" />
-<img width="2048" height="1536" alt="5405" src="https://github.com/user-attachments/assets/bc0f9820-0448-4d68-b364-d2cbc84bbbea" />
-<img width="1536" height="2048" alt="5310" src="https://github.com/user-attachments/assets/5fba4a48-869a-4c89-b83e-3129abf528b1" />
-<img width="1356" height="1080" alt="5211" src="https://github.com/user-attachments/assets/75eee9fb-d3cc-4767-992e-7ef7b0817b4d" />
-<img width="1080" height="1608" alt="5197" src="https://github.com/user-attachments/assets/18a1df26-68ae-4791-9613-4714b0b59b0e" />
-<img width="1254" height="1254" alt="5159" src="https://github.com/user-attachments/assets/2ab210ef-5614-4486-ad53-81412245b15e" />
-<img width="1548" height="1576" alt="4962" src="https://github.com/user-attachments/assets/41bd76a6-2c06-4bc4-8dbf-da83b8424d15" />
-<img width="736" height="736" alt="4835" src="https://github.com/user-attachments/assets/b1769fd9-1b6c-4ef5-be3c-049151213829" />
-<img width="2048" height="2048" alt="4507" src="https://github.com/user-attachments/assets/b191d6bb-5c48-4e4b-a582-d4aae908827a" />
-<img width="621" height="594" alt="4171" src="https://github.com/user-attachments/assets/a213f750-3052-41e9-a2a7-7fb81bbdc8f8" />
-<img width="720" height="1640" alt="2648" src="https://github.com/user-attachments/assets/a5e80cbb-7729-46cf-bade-43a6ca39b238" />
-<img width="270" height="360" alt="3790" src="https://github.com/user-attachments/assets/b5b6dbfe-9d25-406f-a118-5424d09b9fdd" />
-<img width="1105" height="2000" alt="3803" src="https://github.com/user-attachments/assets/7382ff40-b892-47fb-bb38-6b87e9354686" />
-<img width="1536" height="2048" alt="3816" src="https://github.com/user-attachments/assets/38c5b464-61cb-4197-8672-f31a1d2039cc" />
-<img width="800" height="876" alt="3888" src="https://github.com/user-attachments/assets/7d2d32b8-5f90-42dd-b4b0-11e3f78f5347" />
-<img width="1536" height="2048" alt="6185" src="https://github.com/user-attachments/assets/c3851549-503b-45cc-8a1e-d35a883e85a9" />
-<img width="1536" height="2048" alt="6183" src="https://github.com/user-attachments/assets/07940a0e-e6d3-4dec-9eaf-f9ca9c6e4be4" />
-yes this is my persona say hi
+<p align="center">
+<img width="1280" alt="6264" src="https://github.com/user-attachments/assets/637c5e42-e793-47b8-8c90-ea8cd08c27b0" /><br>
+<br>
+<br>
+<img width="22"  alt="6304" src="https://github.com/user-attachments/assets/461ba538-d141-481f-a7b8-b695081231ea" />
+<img width="22"  alt="6305" src="https://github.com/user-attachments/assets/278c7e72-da03-4edc-8335-c9e609539e6d" />
+<img width="21"  alt="6306" src="https://github.com/user-attachments/assets/7370610f-911a-4546-94df-791dd9781e61" />
+</p>
+<br>
+<br>
+<br>
+</p>
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=Wilfies&color=819398&style=flat&label=Trappers" alt="Views">
+</p>
+<br>
+<p align="center">
+<br>
+<br>
+  <img width="107"  alt="6274" src="https://github.com/user-attachments/assets/83755277-52c8-4225-a238-90c4882391c2" />
+<img width="107"  alt="6275" src="https://github.com/user-attachments/assets/83b5b4b6-ba0a-4bdc-a205-16f25cfca0bf" />
+<img width="107"  alt="6276" src="https://github.com/user-attachments/assets/3285dd76-e886-4a6a-98f3-2a46d277df3b" />
+<img width="99"  alt="6285" src="https://github.com/user-attachments/assets/ccf6c0bc-dca1-4700-9032-ae94fdf37e62" />
+<img width="99"  alt="6286" src="https://github.com/user-attachments/assets/ee7494c5-9113-43ab-8805-6c6e33a3c063" />
+<img width="99"  alt="6287" src="https://github.com/user-attachments/assets/1179c4e6-1b27-4eea-8b59-994863835795" />
+<img width="99"  alt="6288" src="https://github.com/user-attachments/assets/782d7d28-4dc0-4c33-940b-2aaa7a8f1460" />
+<img width="99"  alt="6289" src="https://github.com/user-attachments/assets/72269e97-2947-4c48-b273-0bdfc2eac3d1" />
+<img width="99"  alt="6290" src="https://github.com/user-attachments/assets/9730594a-1497-4470-b7a5-871da04e4c58" /><br>
+<br>
+<br>
+<img width="88"  alt="6277" src="https://github.com/user-attachments/assets/aa7c611d-29f3-473e-b1cb-29044c18b361" />
+<img width="150"  alt="6278" src="https://github.com/user-attachments/assets/3fef4387-20a4-40f3-9298-6eff4c150882" />
+<img width="150"  alt="6279" src="https://github.com/user-attachments/assets/ea6bd0a0-2d38-47a9-b548-6c24d4cc1d7d" />
+<img width="78"  alt="6280" src="https://github.com/user-attachments/assets/bed7e206-a809-4064-8c54-fa04a8c81dcf" /><br>
+<br>
+<br>
+ <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2000&pause=500&color=55707e&center=true&vCenter=true&width=500&lines=Dry+your+eyes.;I+won't+tell+ur+mother.;she+won't+ever+discover.;the+things+you+keep—;under+the+covers,;please+don't+cry.;I+am+not+your+brother,;im+not+your+Lover.;and+there+is+nothing+wrong!."><br>
+<br>
+<br>
+<br>
+<img width="1000"  alt="6267" src="https://github.com/user-attachments/assets/bb1550fe-0ed8-4d13-99ec-e728f58dc9d2" /><br>
+<br>
+<br>
+<br>
+<br>
+</p>
