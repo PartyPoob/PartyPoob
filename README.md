@@ -34,7 +34,7 @@
 <img width="78"  alt="6280" src="https://github.com/user-attachments/assets/bed7e206-a809-4064-8c54-fa04a8c81dcf" /><br>
 <br>
 <br>
- <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2000&pause=500&color=55707e&center=true&vCenter=true&width=500&lines=Dry+your+eyes.;I+won't+tell+ur+mother.;she+won't+ever+discover.;the+things+you+keep—;under+the+covers,;please+don't+cry.;I+am+not+your+brother,;im+not+your+Lover.;and+there+is+nothing+wrong!."><br>
+ <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=2000&pause=500&color=55707e&center=true&vCenter=true&width=500&lines=Ooh+Goddamn,I+drop+bombs;I+was+born+with+the+brains—;and+the+brawn.;I+am+the+king!—;and+youre+just+a+pawn.;who's+got+the+high+ground+now?;Obi-wan."><br>
 <br>
 <br>
 <br>
